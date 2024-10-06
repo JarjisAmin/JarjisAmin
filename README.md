@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JarjisAmin
-- 👀 I’m interested in gaming and web developing.
+- 👀 I’m interested in gaming, graphic designing and web developing.
 - 🌱 I’m currently learning html, css.
 - 💞️ I’m not looking to colleborate at the moment.
 - 📫 How to reach me: email- jarjisamin24@gmail.com
